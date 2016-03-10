@@ -28,3 +28,5 @@ No, this is not really about code development. Please share your favorite places
 
 
 
+## Coffeeeee
+* [Coffee Bar](http://www.skyloungeamsterdam.com/en/) - Good coffee and a great view over Amsterdam :canals:
